@@ -209,4 +209,4 @@ Commandos: Behind Enemy Lines is offered as the full free version with all featu
 Don't miss out on the chance to experience one of the greatest strategy games of all time. **Download Commandos: Behind Enemy Lines today and lead your troops to victory!**
 
 ---
-**Last updated:** 2026-09-19 19:16:17 UTC
+**Last updated:** 2026-09-19 22:17:33 UTC
